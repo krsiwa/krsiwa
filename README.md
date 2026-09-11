@@ -1,1 +1,1 @@
-Hey, I am Krishna leaning the Github.
+Hey, I am Krishna learning the Github.
